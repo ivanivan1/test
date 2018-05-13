@@ -1,5 +1,0 @@
-asfsa
-ivan
-serafimov
-kocani
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaa
